@@ -1,1 +1,0 @@
-# Thatipalli-Sumanth
